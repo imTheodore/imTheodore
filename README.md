@@ -26,7 +26,7 @@ We welcome contributions and collaborations from fellow programmers and enthusia
 
 ## 📫 Contact Us
 
-For more information or inquiries, reach out to us through [Telegram](https://t.me/imBukayo).
+For more information or inquiries, reach out to us through [Telegram](https://t.me/imtheodoree).
 
 ## 🎉 Let's Get Started
 
